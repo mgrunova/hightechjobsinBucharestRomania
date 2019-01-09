@@ -1,0 +1,2 @@
+# hightechjobsinBucharestRomania
+I am looking for Cloud Platform Engineers and Architects; Senior QA Engineers; Product Owners; C++ Architects in Bucharest. Please see job descriptions on my profile page (https://lnkd.in/evR4eBH) and if these roles could be of interest, please let me know!  Our website is: https://lnkd.in/emQCSa4.  Join us and 2019 can be your BEST YEAR ever (and every year after)!  If you are not interested, but maybe you know someone in Bucharest who will be great for these positions, will you let me know? Thank you!
